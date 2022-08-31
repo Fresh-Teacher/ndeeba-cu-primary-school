@@ -1,1 +1,1 @@
-# This repo is live at https://freshteacher.tech/My-Biology-Class-Live/
+# This repo is live at https://freshteacher.tech/ndeeba-cu-primary-school/
